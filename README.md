@@ -43,4 +43,8 @@ Here are some companies that are contributing to this resource:
 # [Punta Gorda Condo Association Insurance](http://www.integrityin.com/punta-gorda-condo-association-insurance/)
 
 
+This will be similar to companies using our tool kit for the air ambulance industry such as:
+# [Air Ambulance Company](http://www.airambulanceratings.com/)
+# [Air Ambulance](http://www.flyreva.com/)
+
 
