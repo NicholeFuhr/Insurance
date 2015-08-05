@@ -1,7 +1,7 @@
-Insurance Company
+Insurance Company For Your Needs
 ============
 
-2014/01/10: We are sharing the list of companies which you can contact if you are looking for your [auto insurance] (http://cheapautoinsurance.net) opportunity. We have included insurance companies for health, property and life insurance as well. You can check out their license status online as well as there accreditation. Here are just some of our partners:
+We are sharing the list of companies which you can contact if you are looking for your [auto insurance] (http://cheapautoinsurance.net) opportunity. We have included insurance companies for health, property and life insurance as well. You can check out their license status online as well as there accreditation. Here are just some of our partners:
 
 # Port Charlotte Insurance
 # Port Charlotte Group Life Insurance
